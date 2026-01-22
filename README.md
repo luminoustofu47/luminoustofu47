@@ -1,11 +1,9 @@
-𝑯𝒆𝒍𝒍𝒐 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝒎𝒚 𝒈𝒊𝒕!!
+hi welcome to my git
 
-![17613561752842284438336838378279](https://github.com/user-attachments/assets/54b48101-0b33-453f-8dff-a2e040b591d7)
+![17690523854602515252260103424198](https://github.com/user-attachments/assets/436d8bce-e230-41fa-911a-e18c6e3e4293)
 
-𝐟𝐞𝐞𝐝 𝐦𝐞 𝐚𝐧𝐢𝐦𝐞, 𝐦𝐚𝐧𝐡𝐮𝐚, 𝐚𝐧𝐝 𝐜𝐡🇺🇸🦅🦅
+interests: anime, ch, manhua, HEATED RIVALRY!!!!! 
 
-𝒄+𝒉 𝒂𝒏𝒚𝒕𝒊𝒎𝒆 •◡•
+discord: luminoustofu47
 
-𝐝𝐢𝐬𝐜𝐨𝐫𝐝: luminoustofu47
-
-pls i need friends
+im coming to that cottage
